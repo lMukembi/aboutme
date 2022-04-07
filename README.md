@@ -5,4 +5,4 @@
 - 📫 Reach me via Twitter: @lMukembi, WhatsApp: +254725540469, and (LinkedIn, Facebook, and Instagram): Mukembi Leviticus.
 
 
-- I am the creator of Technaire.com (A computer technology information center).
+- I am the creator of Technaire.com (A technology reviews center.).
